@@ -1,7 +1,3 @@
-### Olá, eu sou o João Luiz 🌟
-### 19 anos
-### Apaixonado por Tecnologia e Música 🎵
-
 </br>
 </br>
 
